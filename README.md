@@ -1,2 +1,1 @@
-# just_for_p
-for practice only 
+MY NAME IS AMANULLAH 
